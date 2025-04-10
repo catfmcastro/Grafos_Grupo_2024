@@ -6,4 +6,4 @@
 - Diego Pereira Maia
 - Rafael Oliveira Lima Peixoto
 
-**Professor:** Hayala Nepomuceno Curto
+**Professor:** Zenilton Kleber Gonçalves do Patrocínio Júnior
